@@ -1,2 +1,1 @@
-# unite
-Students and Working Person everywhere, Unite!
+# Students and Working Person everywhere, Unite!
