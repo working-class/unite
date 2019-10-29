@@ -1,2 +1,2 @@
-Students and Working Persons everywhere, Unite!
-===============================================
+Working-class people everywhere, Unite!
+=======================================
